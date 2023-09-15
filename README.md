@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning How to invest in Crypto and help project
 - 💞️ I’m looking to collaborate on Everything you feel to, just ping me ;)
 - 📫 How to reach me discord: valhen#2950
+- forgot to give my X account: @Valenti50486447
 
 <!---
 valhen2950/valhen2950 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
